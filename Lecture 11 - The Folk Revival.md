@@ -47,3 +47,44 @@ Primarily during the great depression
 	- Declarative choruses, group
 ![289](assets/Screenshot%202026-09-25%20at%2011.19.33%20AM.png)
 
+
+# The Folk Revival
+- Adaptations from Folk Movement
+	- Pared down aesthetics
+		- Guitar/Banjo and voice
+	- “Authenticity”
+	- Social/political awareness
+	- College-aged audience
+- Adaptations from Brill Building:
+	- Persona building
+	- Pop sensibilities
+		- Released singles
+	- Production techniques
+
+# The Kingston Trio "Tom Dooley" 1958
+- West coast folk group
+- Polished on-stage performance
+- Major label production
+- Not overtly political
+- Released as part of an album and as a single 
+	- to get on the charts
+- Responsible for the Grammy’s adding a “Ethnic or Traditional Folk” category because it was so popular
+- Appalachian murder ballad
+	- tell a story of a tragedy, sometimes verse chorus for just strophic
+	- this one is chorus
+
+# The Everly Brothers "All I Have to Do is Dream"
+- Teen-idol-inspired personas
+- Still in the stream of folk revivalggp
+- Recorded in Nashville
+- Written by country and pop songwriting team, Felice and Boudleaux Bryant
+- AABA form
+- Country-inflected vocals
+	- High-pitched
+	- No vibrato
+	- Duet harmonization
+- Influenced:
+	- The Beatles
+	- Simon and Garfunkle
+	- The Eagles
+
